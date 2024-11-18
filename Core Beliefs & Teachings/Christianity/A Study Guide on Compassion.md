@@ -56,7 +56,7 @@ Compassion, a core principle of Christian teaching, embodies **GOD's** boundless
 *   **Closing Reflection:**
 
     *   Consider your growth in compassion throughout this study. What specific actions or changes will you continue?
-    *   Share testimonies of how God worked through compassionate acts in your life.
+    *   Share testimonies of how GOD worked through compassionate acts in your life.
 *   **Commitment Prayer:** “Lord, thank you for revealing Your deep compassion. Help me reflect Your love in all I do. Give me the courage to show kindness without hesitation and the wisdom to act compassionately, even when challenging. Amen."
 
 ##  Citation Sources
