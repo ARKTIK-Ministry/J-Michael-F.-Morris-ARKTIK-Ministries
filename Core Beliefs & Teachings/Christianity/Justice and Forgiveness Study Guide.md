@@ -5,7 +5,7 @@ Justice and forgiveness are intertwined themes central to the Christian faith. T
 ### Part 1: Scriptural Foundations of Justice and Forgiveness
 
 **Key Passages on Justice**
-Micah 6:8 (NIV) - "He has shown you, O mortal, what is good. And what does the Lord require of you? To act justly and to love mercy and to walk humbly with your God."
+Micah 6:8 (NIV) - "He has shown you, O mortal, what is good. And what does the Lord require of you? To act justly and to love mercy and to walk humbly with your **GOD**."
 
 **Reflection:** Acting justly is a divine requirement, paired with mercy and humility. How do justice, mercy, and humility work together in our lives?
 Isaiah 1:17 (NIV) - "Learn to do right; seek justice. Defend the oppressed. Take up the cause of the fatherless; plead the case of the widow."
@@ -38,42 +38,49 @@ Luke 23:34 (NIV) - "Jesus said, 'Father, forgive them, for they do not know what
 **Personal Forgiveness:** Consider moments in your own life when you have been forgiven or extended forgiveness. What was the impact on your relationships and your own heart?
 
 ### Part 3: Reflective Questions and Group Discussion
-Balancing Justice and Mercy
+**Balancing Justice and Mercy**
 
 How do we balance the pursuit of justice with the call to show mercy and forgiveness? Can justice be truly achieved without forgiveness, or vice versa?
 Share a time when you struggled to forgive or when you sought justice. What did you learn?
-Barriers to Forgiveness
+
+**Barriers to Forgiveness**
 
 What makes it difficult to forgive others? How can we overcome these barriers in light of our faith?
 Discuss practical steps you can take to offer forgiveness, even when it is challenging.
-Community Responsibility for Justice
+
+**Community Responsibility for Justice**
 
 How can our church or community become more actively involved in seeking justice for the oppressed and marginalized?
 What practical initiatives can we undertake to live out biblical justice?
-Forgiveness and Healing
+
+**Forgiveness and Healing**
 
 In what ways can forgiveness promote healing and reconciliation within families, churches, and communities?
 Consider any relationships in your life that need healing through forgiveness. What steps can you take?
 
 ### Part 4: Practical Applications and Actions
-Justice in Action
+**Justice in Action**
 
 Identify an area in your community where injustice exists (e.g., poverty, discrimination, inequity). Develop a plan to address this injustice through advocacy, volunteering, or creating awareness.
-Personal Forgiveness Practice
+
+**Personal Forgiveness Practice**
 
 Make a list of individuals you need to forgive or seek forgiveness from. Commit to praying for the strength to forgive and, if possible, take steps toward reconciliation.
-Create a “Forgiveness Journal” to record your journey, reflections, and progress.
-Community Service Projects
 
-Restorative Circles: Organize restorative justice circles that bring together victims and offenders for healing dialogue.
+Create a “Forgiveness Journal” to record your journey, reflections, and progress.
+
+**Community Service Projects**
+
+**Restorative Circles:** Organize restorative justice circles that bring together victims and offenders for healing dialogue.
 Support Groups: Create support groups for individuals struggling with forgiveness and seeking justice, providing a space for prayer, encouragement, and practical support.
 
 ### Part 5: Closing Reflections and Prayer
-Reflection Exercise
+**Reflection Exercise**
 
-Spend time reflecting on how God’s justice and forgiveness have been evident in your own life. How have these experiences shaped your faith and relationships?
-Closing Prayer
+Spend time reflecting on how **GOD’s** justice and forgiveness have been evident in your own life. How have these experiences shaped your faith and relationships?
 
-"Heavenly Father, You are a God of justice and mercy. Help us to seek justice with integrity and humility while offering forgiveness with a heart like Yours. Give us the strength to be instruments of Your peace in a broken world. Teach us to walk in Your ways, balancing justice and forgiveness in all we do. Amen."
-By studying justice and forgiveness through the lens of scripture and real-life examples, we are called to become agents of God’s transformative love and healing. May this guide inspire us to act justly, love mercy, and walk humbly with our God.
+## Closing Prayer
+
+"Heavenly Father, You are a **GOD** of justice and mercy. Help us to seek justice with integrity and humility while offering forgiveness with a heart like Yours. Give us the strength to be instruments of Your peace in a broken world. Teach us to walk in Your ways, balancing justice and forgiveness in all we do. Amen."
+By studying justice and forgiveness through the lens of scripture and real-life examples, we are called to become agents of **GOD’s** transformative love and healing. May this guide inspire us to act justly, love mercy, and walk humbly with our **GOD**.
 
