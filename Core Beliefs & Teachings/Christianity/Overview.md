@@ -46,9 +46,13 @@ Christianity, a faith followed by billions worldwide, finds its roots in the lif
 * Stemming from the 16th-century Reformation, emphasizing *sola scriptura* (scripture alone) and *sola fide* (justification by faith alone).
 
     * **Lutheran:** Founded by Martin Luther, focusing on justification by faith, scripture, and sacraments.
+      
     * **Reformed/Presbyterian:** Influenced by John Calvin, emphasizing God's sovereignty, predestination, and scripture.
+      
     * **Methodist:**  Rooted in John Wesley's teachings, emphasizing holiness, social justice, and spiritual discipline.
+      
     * **Baptist:**  Practices believer's baptism, local church autonomy, and champions religious liberty.
+      
     * **African Methodist Episcopal (AME) Church:**  Founded by Richard Allen in 1816 as the first independent Black denomination in the U.S. Focuses on social justice, education, and community empowerment. Other historically Black denominations include the African Methodist Episcopal Zion (AME Zion) Church.
 
 
