@@ -8,7 +8,7 @@ Christianity, a faith followed by billions worldwide, finds its roots in the lif
 * **Jesus Christ:**  The cornerstone of Christian belief is Jesus Christ, considered both fully God and fully human. His teachings, crucifixion, and resurrection are believed to fulfill ancient prophecies and offer salvation.
 * **The Bible:** Christians revere the Bible, comprising the Old and New Testaments, as the inspired word of God and the ultimate guide for faith and life.
 * **Salvation by Grace:**  Salvation is considered a gift from God, freely given through faith in Jesus.  This emphasizes God's grace and calls for a response of faith, love, and obedience.
-* **Love and Compassion:** At the heart of Christian teachings are love for God and others, compassion for those in need, forgiveness, and the pursuit of justice – principles shaping Christian ethics and community life.  Christian ethics are guided by scriptural teachings, with love for God and neighbor as the highest commandments. [2 ] 
+* **Love and Compassion:** At the heart of Christian teachings are love for God and others, compassion for those in need, forgiveness, and the pursuit of justice – principles shaping Christian ethics and community life.  Christian ethics are guided by scriptural teachings, with love for God and neighbor as the highest commandments. [2] 
 
 ## Exploring Major Christian Denominations:
 
@@ -54,7 +54,7 @@ Christianity, a faith followed by billions worldwide, finds its roots in the lif
 
 ###  **6. Pentecostal and Charismatic Churches:**
 
-* Emphasize the gifts of the Holy Spirit (speaking in tongues, healing, prophecy). [1 ] 
+* Emphasize the gifts of the Holy Spirit (speaking in tongues, healing, prophecy). [1] 
 * Dynamic and spontaneous worship, focused on personal experience with God.
 
 
@@ -65,3 +65,7 @@ Christianity, a faith followed by billions worldwide, finds its roots in the lif
 * American Christianity is a diverse landscape, shaped by history, culture, and theology.
 * Christians have played a significant role in the social, cultural, and political fabric of the nation.
 * Interfaith and ecumenical efforts promote social justice, humanitarian aid, and understanding.
+
+##
+### [1] pewresearch.org 
+### [2] thegospelcoalition.org 
