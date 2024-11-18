@@ -2,19 +2,19 @@
 
 ## **Introduction**
 
-Compassion, a core principle of Christian teaching, embodies God's boundless love for all. This study guide delves into the meaning of compassion as revealed in Scripture, offering practical applications, reflections, and community engagement opportunities. Together, we will explore compassion's transformative power, enhancing our understanding and inspiring acts of kindness within our faith community.
+Compassion, a core principle of Christian teaching, embodies **GOD's** boundless love for all. This study guide delves into the meaning of compassion as revealed in Scripture, offering practical applications, reflections, and community engagement opportunities. Together, we will explore compassion's transformative power, enhancing our understanding and inspiring acts of kindness within our faith community.
 
 ## **Part 1: Biblical Roots of Compassion**
 
 *   **Matthew 9:36:** "When he saw the crowds, he had compassion on them, because they were harassed and helpless, like sheep without a shepherd."
 
     *   **Reflection:** Jesus' compassion for the lost and suffering reveals His deep empathy. How can we mirror this in our daily lives, noticing those around us who are struggling?
-*   **Colossians 3:12:** "Therefore, as God's chosen people, holy and dearly loved, clothe yourselves with compassion, kindness, humility, gentleness and patience."
+*   **Colossians 3:12:** "Therefore, as **GOD's** chosen people, holy and dearly loved, clothe yourselves with compassion, kindness, humility, gentleness and patience."
 
     *   **Reflection:**  We are called to actively cultivate compassion.  When has compassion guided your actions? How can you weave it into the fabric of your daily life?
 *   **Psalm 103:13:** "As a father has compassion on his children, so the Lord has compassion on those who fear him."
 
-    *   **Reflection:** God's compassion is a father's tender love. Reflect on how you've experienced this love. How can you extend this same compassion to others?
+    *   **Reflection:** **GOD's** compassion is a father's tender love. Reflect on how you've experienced this love. How can you extend this same compassion to others?
 *   **Luke 10:33-34 (Parable of the Good Samaritan):** "But a Samaritan, as he traveled, came where the man was; and when he saw him, he took pity on him... He went to him and bandaged his wounds."
 
     *   **Reflection:** The Good Samaritan demonstrates compassionate action that transcends social barriers. How can we overcome our prejudices and extend compassion to everyone, especially those different from ourselves?
