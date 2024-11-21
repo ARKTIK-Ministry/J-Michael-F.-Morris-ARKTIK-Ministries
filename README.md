@@ -1,4 +1,3 @@
-
 # J-Michael-F.-Morris-ARKTIK-Ministries Repository
 
 Welcome to the **J-Michael-F.-Morris-ARKTIK-Ministries** repository, a comprehensive platform dedicated to fostering understanding, reconciliation, and spiritual growth within the Abrahamic traditions of Christianity, Judaism, and Islam. This repository serves as a hub for the resources, initiatives, and programs that reflect ARKTIK’s mission to create a sanctuary of learning, faith, and innovation.
@@ -13,7 +12,7 @@ The repository is organized into the following directories and files:
   - Contains foundational documents that outline ARKTIK’s vision, mission, and initiatives.
 
 - **ARKTIK_ACCESS/**
-  - Features content on the ARKTIK ACCESS program, including resources for respectful interfaith observation.
+  - Features content on the ARKTIK ACCESS program, including resources for respectful faith based observation.
 
 - **Core_Beliefs_and_Teachings/**
   - Includes educational materials on shared values, seasonal observances, and spiritual practices.
